@@ -1,4 +1,4 @@
-- ola sou mandyniss,mais conhecido como comedor de perekas
+- ola sou mandyniss,mais conhecido como nerd,e fudido
 - estou interessado em progamaçao html/javascripit
   estou aprendendo na alura
 - mulheres hehe
