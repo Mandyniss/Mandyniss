@@ -1,5 +1,5 @@
 - ola sou mandyniss,mais conhecido como nerd,e fudido
-- estou interessado em progamaçao html/javascripit
+- estou interessado em progamaçao html/javascripit/python
   estou aprendendo na alura
 - mulheres hehe
 - mandynissoriginal@gmail.com
