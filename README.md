@@ -1,4 +1,4 @@
-- ola sou mandyniss,mais conhecido como nerd,e fudido
+- ola sou mandyniss,joao miguel para os intimos,gosto de tudo relacionado ao artista yun li(bonda em especifico)
 - estou interessado em progamaçao html/javascripit/python
   estou aprendendo na alura
 - mulheres hehe
